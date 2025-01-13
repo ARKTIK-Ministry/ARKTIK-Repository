@@ -75,3 +75,4 @@ ARKTIK is more than a repository—it is a legacy of faith, hope, and vision. He
 **Welcome to ARKTIK. Together, we’ll transcend limits and rewrite possibilities.**  
 
 **We Are ARKTIK—and you should wear ARKTIK, too.**  
+
